@@ -1,0 +1,2 @@
+# wirnado
+Assalamualaikum ukhty
